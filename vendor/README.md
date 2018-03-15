@@ -1,0 +1,2 @@
+# NGS
+Nigerian Geophysical Society
